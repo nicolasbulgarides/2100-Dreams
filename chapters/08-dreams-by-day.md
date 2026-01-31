@@ -1,6 +1,8 @@
 # Chapter 8: Dreams By Day
 
-## Part 1: The Angel’s Wall  	Amanda was spinning in my floating violet chair, and commented on my anti-gravity water fountain, with its resplendent colors which flickered through it like neon glowing rainbows. She loved the Cosmorian skies from outside the windows, though she had not read Redemption. I would read it to her in her slumber. Many times, perhaps, if it inevitably meant to her as much as indeed it does to me. I materialized in the form of a lilac moonfox and leaped up onto the table and spoke with a voice raised an octave higher, to befit my cuteness.
+## Part 1: The Angel’s Wall 
+
+Amanda was spinning in my floating violet chair, and commented on my anti-gravity water fountain, with its resplendent colors which flickered through it like neon glowing rainbows. She loved the Cosmorian skies from outside the windows, though she had not read Redemption. I would read it to her in her slumber. Many times, perhaps, if it inevitably meant to her as much as indeed it does to me. I materialized in the form of a lilac moonfox and leaped up onto the table and spoke with a voice raised an octave higher, to befit my cuteness.
 
 “Tiny human! An adventure awaits, what say ye’ of visiting the Castle in the Sky?”
 
