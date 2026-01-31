@@ -86,8 +86,6 @@ Full license: https://creativecommons.org/licenses/by/4.0/
 ## Contact
 
 - Author: Peter Pietri
-- Archive: [Internet Archive Link - if uploaded]
-- Discussion: [Link to discussion forum if created]
 
 ---
 
