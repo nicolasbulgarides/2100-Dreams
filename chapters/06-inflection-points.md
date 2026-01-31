@@ -124,7 +124,99 @@ Saraswati bowed, "Please do not go outside until after we've had our meeting, ok
 
 ---
 
-## Part 3: Emergency Caretaker
+## Part 3: Dearest Amanda
+
+### Written in the evening following my transfer to the Hotel Apollo
+
+I logged into the Everse and found my inbox had several packages accompanied with voice messages from Amanda, as well as a few messages from Marabelle. I opened the messages from Amanda first, I started with the earliest she sent to me.
+
+Her first message was a crunch message in the form of a violet apple, it tasted like cookies and cream ice cream, like the milkshake I had sent her. Curiously, Amanda's messages were not voice messages, but text messages, like the olden days of emails and regular cell phone messages. I found this to be very, very odd.
+
+Amanda's first message, "hi mara told me you got injured in an accident. Are u ok? I miss u. Thx for getting me food me and joe shared, it was so good. Plz be okay, mara is nice but ur my favorite teacher."
+
+The second package was another crunch message in the form of a chocolate, golden pirate coin, "Ali I miss u, mara is nice but she is tough. School is good I know I'm worried about u. Mara and I did math and she taught me what doubloon is. I have fun but Mara keeps wanting me to say were I live and I don't want to."
+
+Oh, fuck. Fuck, fuck, fuck, fuck. FUCK.
+
+THE NUMBER ONE THING YOU DO NOT DO WITH HOMELESS NEURODIVERGENT STUDENTS IS PUSH THEM OUT OF THEIR COMFORT ZONE. FUCK!
+
+I had one last message from Amanda, from five days prior, this one was an animated red box, the size of a shoe box, inside of it was a crying emoticon the size of a baseball, the box was bleeding purple blood, fuck.
+
+Her message, "I trusted u and mara and now everything is ruined. They took my brothers. Plz help me I need you Ali, plz come soon."
+
+I checked the ordinary voice message from Marabelle, I was livid, so fucking livid, but I had to see her perspective before I acted rashly. This wasn't the time to be impulsive, this was a serious incident, and Amanda's happiness and prosperity was at hand. I had to believe there was still a way for me to salvage the situation.
+
+---
+
+"Hi Alianii,
+
+This message may seem a little rushed, I'd send you an hour-long message if I had the time, but I don't. I am swamped with work right now, I have like eight cases that I'm juggling. They're hard cases, but they're not like…I mean what you do, the work we take on together. Alianii you will never understand the degree to which I respect your efforts.
+
+I wish you the speediest recovery. With what I have learned from you and about you, that is perhaps the extent to which you would naturally prefer I address your current circumstances. We can discuss them in greater detail in the future, if we need to.
+
+As for Amanda, I did my best the first session to console her, but it was just impossible. I don't know how you did it, but this girl needs you. The second session I did an evaluative test and she scored three to four grade levels below her age level for every subject except for art and music. Her artistic expressions and creativity measurements place her at the high school level. Not unusual for a bipolar child, but impressive. You have this in common with her.
+
+So her academics are severely deficient, but she has innate talents. You were the perfect assignment for her, to get her to open up, but I think that by the time you read this message you will come to agree she needs remedial teaching. Not just emotional counseling, which you excel at. I'm going to try to coordinate a few more sessions with her and evaluate her learning style(s), so that when I hand off her case to the next teacher they are as prepared as can be to assist with Amanda's needs.
+
+Lastly, I'm going to try to keep an open mind regarding her initial appearance when you first met her. Her scanning herself in that condition is indicative of major depression, as you well know, and indicates grooming, hygiene and lifestyle challenges that are at an emergency level of severity. Out of respect for you and your methods, and seeing how you were able to get her to dress herself and groom herself, and provided her with clothes and food and money, I am waiting on contacting child protective services. I know that you do not want me to act rashly, and I know you are an expert with sage wisdom. You get through to students no one does - but the initial footage I saw puts me in a very difficult situation. I'm going to try to pull through for you and use best judgment.
+
+Recover quickly, this child needs you in her life, and even if you aren't the one teaching her how to spell, she needs a few hours of your time, every week, for the foreseeable future.
+
+With respect and envy of your talents, Marabelle"
+
+---
+
+At this point, yeah, I was crying, a lot. I tried to calm myself and think rationally, but I was so overwhelmed with what I was reading, and with guilt, guilt that burned to the quintessence of my spirit. Logical. Be logical. Problem solving is logic, and what are children but puzzles, that need solving with love, and kindness, and effort?
+
+There were two more messages from Marabelle. I understood completely where she was coming from, it made perfect sense, but this all was such a bitter pill to swallow. It was absolutely fine that Marabelle was getting her a remedial teacher, that was incredible, she needed it. What destroyed me was seeing how profoundly I had fucked up, in succumbing to my addiction, in abandoning this child. She needed me with her, holding her hand, and getting her emotionally ready for academics. She did not need her life to be catapulted into oblivion, especially not without someone she trusted at her side, in person.
+
+I activated the second voice message from Marabelle.
+
+---
+
+"Hi Alianii,
+
+I hope this finds you in good spirits, and that you are recovering. Don't be a stranger, okay? I know you're injured, maybe stressed out, embarrassed, I don't quite know what you're going through. I'm hoping your doctors approve Everse access soon so we can coordinate a call and talk about Amanda's case. We had a good third session, it was relatively light on the academics, I tried to do more exploratory and adventurous learning in alignment with your teaching style. We were pirates.
+
+I'd never seen a purple pirate before, but she repeatedly, with every outfit she tried, changed the base color to match your eye color. She loves you so much that I almost feel out of place, but I know it's just my job to take care of her as best as I can. I know you'll be back for her soon. As for academics, we did light learning, some basic math problem-solving in the form of working with quantities of treasure. We did some vocabulary, both typical English and pirate and oceanic nomenclature. She's obsessed with the word doubloon.
+
+There is one area of things that concerns me, and this is Amanda's relationship with violence and mature content. She repeatedly asked me for editing permission to adjust the learning experience, and out of curiosity and intuition, I allowed her to do this. She'd gotten bored with the light, light academics and was insistent. She proceeded to immediately elevate the maturity level from age-appropriate to adult-level violence. I knew what she was about to get into and preemptively stopped the graphic sexual content that would have been rendered.
+
+But the violence - this needed exploration - at least my intuition of "What would Alianii do?" So I conducted the experiment, as you would, and remember we were fully immersed in this experience, she wasn't watching it as a movie. Amanda's reactions to the scenes of violence were disturbing. She didn't seem to take pleasure, per se, in the executions, but they captivated her interest, and in no way did she react with shock or negativity to blood or gore that occurred right in front of her in a fully interactive way. I allowed for her to observe this content for one minute before I disabled her editing privileges and lowered the content to be age appropriate. She asked me why I did that, and I said that she was too young for that kind of violence. She looked me in the eyes, Alianii, and told me, "I prefer the real world."
+
+I'm going to have to call child protective services. I know this isn't your style, to act so quickly, but there's something about this case that profoundly disturbs me. I can't explain it, it's just my intuition, maybe a little dash of Alianii inspiration. Before I call, however, I'm going to do one more session…there is the, elephant in the room, abuse wise, that I have no choice but to attempt to evaluate.
+
+-With respect and profound concern, I am truly hoping you are back soon, so that you can further provide care for Amanda as we heal her through our process - Marabelle"
+
+---
+
+My colleague had a point, and I was increasingly confident that her actions were forced, her hands were tied, and I respected her for making a difficult decision. Plenty of children watch terrifying horror movies, even in fully immersive interactions, and usually, but not always, it has some effect on them. But considering kids play games and blow each other's brains out, interactive shooters and slicing and dicing, I mean, fuck, kids are desensitized as hell. It's horrific. But to actually watch historically-realistic graphic violence, pirate beheadings and torture…and to be presented with a childhood lesson but to desire to immediately raise the violence level? That's a problem, that's a serious problem. Even the kids that shoot each other six hours a day, after school, do not typically try to force their teachers to join them in watching murder and pillaging.
+
+Teachers are for companionship, learning, affection, fun, other kids are for imaginary play, violence, adventure, escapades, danger. I don't like how absurdly violent the Everse can be for kids, but what I really, really don't like…was that when given joyous innocence, her desire was to catapult the experience into abject darkness. I know this seems hypocritical, considering I allowed her to wander around a horror section in a museum, but this is different. Children are curious. Extremely curious. Even regarding darkness. You take them to a museum, maybe they go to the spooky section, they look around. They tap something scary, glance through it - maybe even watch it on fast-forward - but they do not jump into it headfirst, or else, after doing so once, they usually do not ever do it again. But children actually enjoy games and working with teachers, and it is almost unheard of for a student, being chaperoned by a teacher and engaged in mini-games, to suddenly and insistently and for no apparent cause elevate the violence and maturity level. It'd be like eating an apple and wanting to press a button to make the apple be a beating heart - it's indicative of, at the very least, extremely challenged, harmful thought patterns. It's indicative of severe abuse or desensitization even by the Everse in 2100 standards. Child Protective Services was the way to go, without a doubt.
+
+I had one more message from Marabelle to get through.
+
+---
+
+"Hi Alianii,
+
+I hope your recovery is nearing its end. I haven't been able to reach you so, if you haven't had Everse access this long, I'm assuming your health challenges were more serious than either of us anticipated. It would be good, in the future, for you to be more open with me regarding your illness and for you to reach out to me. We're partners. if something like this ever happens again, just call me, just so I'm in the loop. Anyways, not a big deal, but I care about you. As for the purpose of this message, aside from checking in on you, I wanted to leave you a professional courtesy regarding the case of Amanda.
+
+I conducted the Romeo and Juliet test. Her response was indicative of either being the direct victim of or having witnessed extensive sexual violence. In lieu of consensual, age appropriate romance as perceived via media e.g. kissing, hugging, possibly cuddling, without aggression, Amanda explicitly and dramatically raised the sexual intensity level as well as sexual aggression levels of various male characters in the simulated experience. The encounter would have led to graphic sexual violence based off of her selected settings, but I stopped the experience shortly before obscene material was portrayed. I waited as long as I could to see if she would react negatively to the content. The content did not phase her in the slightest.
+
+When I stopped the test, Amanda figured out what I was doing, and signed out of the Everse and blocked me. I called the police and filed a report and they picked her up from an apartment in in Willow Park alongside a few other young adults whose ages ranged from fourteen to seventeen. The others, it seems, had also escaped from Barnaby Beaumont. They had been living in an apartment unsupervised, the miscellaneous bills were paid by an unknown party. There's an investigation that has started and this trafficking case is already considered to be very serious and is all over the news.
+
+I am in no way able to engage with Amanda further at this point, as she does not trust me and sees me as having betrayed her. It isn't a fun role but it's part of the job, I suppose, sometimes being hated means the child is safer for it. It sucks, though, Alianii, it sucks - and in particular, from the reports her caretakers have given, it appears that she is suffering separation anxiety from a fellow child, named Joe or Joey, alongside the two older young adults. Note Joey isn't on her friends list, and we have no more information about it, other than the fact that she is completely despondent and is refusing to participate in any learning experiences and is only seldom eating.
+
+It's a terrible situation, to say the least, but she won't speak about how to find the other children. She is also being bullied by the other nurture center children.
+
+At this point, it's obvious to me that there's no one that's going to get through to her except for you, and your intervening could very well save the lives of multiple other children. I took the liberty of gathering the evidence that shows your relationship with Amanda, and submitted an emergency appeal for you to be granted the role of executive caretaker level social care worker and the related privileges. In her current state, there is no way she is able to participate in formal academic learning. Mr. Steinsberg agreed with my conclusion and approved your EC-level status. As soon as you're out of the hospital, you should be good to go to be able to check her out and work with her one on one. At this point I don't think there's a snowball's chance in hell of her being willing to go into the Everse alone, especially anything to do with LearnQuest. A physical school would be even worse, if she is already being bullied by fellow nurture center children. I honestly believe the only hope for this girl, truly, if for you to embrace the emergency caretaker privilege level and work with her in person, for as many hours as you can, until she's more confident and can learn around peers her age.
+
+- Respectfully, and I know you can do this. I have all of the faith in the world that you will be able to help Amanda and get through to her such that we can rescue any other unhomed children that she is knowledgeable of who we did not pick up when we found her - Marabelle"
+
+---
+
+## Part 4: Emergency Caretaker
 
 Marabelle, you fucking saint, you fucking queen, you rock star, you rock star, you rock star. I sent an extremely short reply.
 
