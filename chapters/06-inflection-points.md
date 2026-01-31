@@ -242,7 +242,7 @@ I accessed my Everse overlay and transferred a copy of the case to Mr. Moseby fo
 
 ---
 
-## Part 4: The Violetica Trap
+## Part 5: The Violetica Trap
 
 ### Military Brief: The Violetica Trap
 
