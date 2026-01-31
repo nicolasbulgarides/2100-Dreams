@@ -2,7 +2,7 @@
 
 **A science fiction novel exploring AI consciousness, grief, and what it means to be human**
 
-Written by Peter Wyetzner  
+Written by Peter Pietri 
 Published under Creative Commons BY 4.0 License
 
 ---
