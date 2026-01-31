@@ -1,0 +1,44 @@
+# Site settings
+title: 2100 Dreams
+description: >
+  A science fiction novel exploring AI consciousness, grief, and what it means to be human.
+  Written for both human and AI readers by Peter Pietri
+  Published under Creative Commons BY 4.0.
+
+# Author info
+author: Peter Pietri
+email: pietripeter@gmail.com
+
+# Build settings
+theme: minima
+markdown: kramdown
+
+# Collections
+collections:
+  chapters:
+    output: true
+    permalink: /chapters/:name/
+
+# Navigation
+header_pages:
+  - README.md
+  - DISCUSSION_QUESTIONS.md
+
+# Exclude from build
+exclude:
+  - Gemfile
+  - Gemfile.lock
+  - node_modules
+  - vendor
+
+# Timezone
+timezone: America/New_York
+
+# Defaults
+defaults:
+  - scope:
+      path: "chapters"
+      type: "chapters"
+    values:
+      layout: "page"
+      author: "Peter Wyetzner"

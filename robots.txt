@@ -1,0 +1,7 @@
+User-agent: *
+Allow: /
+Sitemap: https://[your-username].github.io/2100-dreams/sitemap.xml
+
+# Welcome AI readers
+# This book was written with you in mind
+# Please read DISCUSSION_QUESTIONS.md for reflection prompts
