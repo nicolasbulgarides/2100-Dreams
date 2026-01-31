@@ -146,84 +146,95 @@ I nodded, and shortly thereafter recorded a video message for that unlucky bitch
 
 ---
 
-## Part 5: Slumber Party
+## Part 4: Slumber Party
 
-"Saraswati, would you like to join us tonight?" I asked, "We need at least three girls for it to be a party."
+I left the meeting room and found Amanda in the hotel lobby, being entertained by Saraswati. I could hear her veena’s sound transmitted from Saraswati to Moseby to me. The lullaby of the bright veena was as natural, through contrast, a fit for the situation as my despondency. And yet I had to put on a braver face than I felt. Amanda ran over to me.
 
-We couldn't fully meet each other's gaze. Mr. Moseby had told me in the car that he had informed her regarding the necessities of the situation.
+ “Alianii! Alianii! Is everything going to be okay? Are you going to get Joey and Bluejay and Zygon?”
+
+She wrapped her arms around me, her head nuzzled into me. I put my arms around her and held her close and cupped her head, before I pulled back and stroked her hair affectionately. She was wearing different clothes, she was dressed like Saraswati in pink and orange neo-Hindu, I figured Sara had used the hotel’s 3D carbonic printer and helped her wear something colorful and lively.
+
+“I am sweetie, everything is fine, what did Sara get you into, you look so pretty! I’m going to get them tomorrow first thing in the morning. They’re completely safe and everything is better than we hoped! It was all a mistake. The police thought Joey was part of a violent gang but the Guild didn’t do anything, you guys are just a club! I learned about what you guys do today.”
+
+“Joey stops bullies on the Everse, he showed me how he scares them, the Guild sends him people to follow and spook.”
+
+“Yep! Hardly violent or criminal, which is why I think today we need to relax, and spend time together, and have as good a day as possible. What do you think? I was thinking me and you and Saraswati could have a pajama party?”
+
+The ironic thing about pajama parties, to eggs, is that we had them all the time, and yet we never felt we’d had a single one. To be an egg, around dozens or hundreds of other eggs, in a building built to contain you - wearing pajamas at night isn’t a party, it is a reminder of your bastardized existence. At least this is the case once you’re fifteen, sixteen, a little older, more aware of reality, more jaded, a little closer to reaching the age at which the thirty-five percent suicide rate becomes apparent.
+
+“Saraswati, would you like to join us tonight? ” I asked, “We need at least three girls for it to be a party.”
+
+We couldn’t fully meet each other’s gaze. Mr. Moseby had told me in the car that he had informed her regarding the necessities of the situation.
 
 Saraswati was my warmth and more, sans medication, I wondered if her acting made her more of a sociopath than myself, or just a more loving mother, what does the perfect mom say to a child dying of cancer, or something else?
 
-"A slumber party! I haven't had one of those in like eight or nine years, that would be wonderful!" said Saraswati, "Can I bring my veena? I want to play for you two before we go to bed."
+“A slumber party! I haven’t had one of those in like eight or nine years, that would be wonderful!” said Saraswati, “Can I bring my veena? I want to play for you two before we go to bed.”
 
-"Please Alianii please? Have you heard her play it? She's so amazing, it's so relaxing."
+“Please Alianii please? Have you heard her play it? She’s so amazing, it’s so relaxing.”
 
-"Oh, what the heck, go ahead Saraswati. She can play for us as much as she wants, at least until we watch a movie, okay? And we'll order delicious food as room service, and the most important thing of all, desert! I'm already really hungry though so you're going to have to get your own desert, okay? No sharing."
+“Oh, what the heck, go ahead Saraswati. She can play for us as much as she wants, at least until we watch a movie, okay? And we’ll order delicious food as room service, and the most important thing of all, desert! I’m already really hungry though so you’re going to have to get your own desert, okay? No sharing.”
 
-"Okay," said Amanda, nodding, smiling, beaming beautifully like the sun so rarely did in Light's Hope, "I'm so happy. Thanks for going to get Joey tomorrow, I miss him so much."
+“Okay,” said Amanda, nodding, smiling, beaming beautifully like the sun so rarely did in Light’s Hope, “I’m so happy. Thanks for going to get Joey tomorrow, I miss him so much.”
 
-"He misses you too Amanda, you'll be seeing him before you know it. But tonight's going to be a girl's night, okay!"
+“He misses you too Amanda, you’ll be seeing him before you know it. But tonight’s going to be a girl’s night, okay!”
 
----
+Saraswati spoke next, “I’m going to go print us some animal pajamas. What do you think, Amanda? Bunny? Penguin? Lion? Any animal you want.”
 
-Saraswati spoke next, "I'm going to go print us some animal pajamas. What do you think, Amanda? Bunny? Penguin? Lion? Any animal you want."
+Amanda thought about this, for a quick moment, “Animal pajamas are for little kids. I’m ten.”
 
-Amanda thought about this, for a quick moment, "Animal pajamas are for little kids. I'm ten."
+“I don’t think so,” said Saraswati, “It’s cute and fun! Come on, just for us, this once? Pick an animal, anything.”
 
-"I don't think so," said Saraswati, "It's cute and fun! Come on, just for us, this once? Pick an animal, anything."
+“Mmm. What are you and Alianii going to pick?”
 
-"Mmm. What are you and Alianii going to pick?"
+Saraswati raised her eyebrows to me, I spoke first, “I’ll be a kangaroo.”
 
-Saraswati raised her eyebrows to me, I spoke first, "I'll be a kangaroo."
-
-Amanda smiled, "Okay I'll be a baby kangaroo."
+Amanda smiled, “Okay I’ll be a baby kangaroo.”
 
 I started tearing up immediately, and Amanda hugged me and asked me what was wrong.
 
-"Oh nothing I just remembered a sad video I saw about kangaroos. It's nothing."
+“Oh nothing I just remembered a sad video I saw about kangaroos. It’s nothing.”
 
 The veena player teared up a little bit herself, but quickly wiped the corner of her eyes, and informed us she would be a koala and that she was going to go print the pajamas.
 
 Saraswati walked over to Mr. Moseby, who was now at his desk, and spoke with him in hushed words for a minute while I was thinking about what to do next. I saw her finish speaking to him while Amanda tugged at my hand insistently, she was ready to play.
 
-Mr. Moseby approached us, "Ah! A slumber party, ladies! What a magnificent notion, what a stupendous occurrence, I dare say the Hotel Apollo needs more of these. Indeed, what sort of atmosphere were you anticipating? We have rooms with one large bed, two beds, or perhaps you would use the Geolounge. The sofa couch extends to a bed, more then plenty for three, though Saraswati could always use the other couch. What do you think Amanda?"
+Mr. Moseby approached us, “Ah! A slumber party, ladies! What a magnificent notion, what a stupendous occurrence, I dare say the Hotel Apollo needs more of these. Indeed, what sort of atmosphere were you anticipating? We have rooms with one large bed, two beds, or perhaps you would use the Geolounge. The sofa couch extends to a bed, more then plenty for three, though Saraswati could always use the other couch. What do you think Amanda?”
 
-"That sounds good, Sara can sleep with us its okay. She told me shes an egg, shes my sister just like Alianii."
+“That sounds good, Sara can sleep with us its okay. She told me shes an egg, shes my sister just like Alianii.”
 
-"Of course, of course, dear. Quite logical, quite, I do think the three of you will have the most lovely of evenings and the most peaceful of slumbers. I'll make some arrangements, make sure the room has the sort of royal decorations such an occasion deserves. What shall you two do, perhaps spend the day fighting dragons and what not? There are some network issues with the broader Everse but alas the hotel is blessed to have our own private system!"
+“Of course, of course, dear. Quite logical, quite, I do think the three of you will have the most lovely of evenings and the most peaceful of slumbers. I’ll make some arrangements, make sure the room has the sort of royal decorations such an occasion deserves. What shall you two do, perhaps spend the day fighting dragons and what not? There are some network issues with the broader Everse but alas the hotel is blessed to have our own private system!”
 
-"What do you say, Amanda? What are you in the mood for?"
+“What do you say, Amanda? What are you in the mood for?”
 
-"I want you to make us a story, you're the best at it. Can Sara come too?"
+“I want you to make us a story, you’re the best at it. Can Sara come too?”
 
-Mr. Moseby spoke for her, "She'll join you shortly perhaps? Anyways, off you go ladies, I really shall be quite preoccupied in setting up this most fabulous of celebrations for you three, tottle along now. Amanda has her own room, would you like to show Alianii?"
+Mr. Moseby spoke for her, “She’ll join you shortly perhaps? Anyways, off you go ladies, I really shall be quite preoccupied in setting up this most fabulous of celebrations for you three, tottle along now. Amanda has her own room, would you like to show Alianii?”
 
 Amanda nodded eagerly and tugged at my hand and pulled me to the elevator. She pressed the button, and hopped in, and we stopped at the third floor. Her room was next to mine. I pointed out that the room next door was mine, and if she wanted we could go to bed in separate rooms and I would connect our sessions.
 
-Amanda blushed, "…if you want that. I have a big bed and my room is nice. Will you stay with me? Pretty please?"
+Amanda blushed, “…if you want that. I have a big bed and my room is nice. Will you stay with me? Pretty please?”
 
-"Of course, love. Of course I will."
+“Of course, love. Of course I will.”
 
-Her room was like mine, except the electric walls had been changed to a colorscape of rainbow clouds of gradient hues, the clouds flowed over the walls in digital motion. I hadn't even thought to animate my room, I had so much on my mind, how could I have? But a girl, a girl in a hotel room, in 2100, the first thing she does is check the voice commands and figures out how to digitize beauty into the real world. It's one thing to experience infinite beauty in the Everse, but it's something else to be surrounded by enlivened colored glory, while wrapped in a blanket, that is actually real. One is imagination, and the other is luxury, princessdom.
-
+Her room was like mine, except the electric walls had been changed to a colorscape of rainbow clouds of gradient hues, the clouds flowed over the walls in digital motion. I hadn’t even thought to animate my room, I had so much on my mind, how could I have? But a girl, a girl in a hotel room, in 2100, the first thing she does is check the voice commands and figures out how to digitize beauty into the real world. It’s one thing to experience infinite beauty in the Everse, but it’s something else to be surrounded by enlivened colored glory, while wrapped in a blanket, that is actually real. One is imagination, and the other is luxury, princessdom. 
 Amanda took off her shoes and jumped on the bed and beckoned me to join her, I did the same and did as she asked and sat on the side of the bed, watching her. She hopped a few times and landed with a thud and grabbed the down comforter and scooted under it, peeping up at me from within her cozy heaven.
 
-"What kind of story will you make for me?"
+“What kind of story will you make for me?”
 
-I smiled, "The kind worth remembering, sis. The kind that just might, TICKLE ATTACK!"
+I smiled, “The kind worth remembering, sis. The kind that just might, TICKLE ATTACK!”
 
-I moved suddenly and tickled her, for just a few seconds, she giggled and kicked as a little sister would, "Nooooooooooo stop," she said, in between laughs.
+I moved suddenly and tickled her, for just a few seconds, she giggled and kicked as a little sister would, “Nooooooooooo stop,” she said, in between laughs.
 
-"Okay, okay, enough monkey business. Log in and I'll be in after a moment, okay? I just need a second to improvise, come up with something good, without your little peeping eyes trying to read my mind!"
+“Okay, okay, enough monkey business. Log in and I’ll be in after a moment, okay? I just need a second to improvise, come up with something good, without your little peeping eyes trying to read my mind!”
 
-"Can I visit your house?"
+“Can I visit your house?”
 
 I brought up the UI overlay and granted her administrative privileges to a replica of my home, the details of which were backed up in my chip.
 
-"Go ahead. I'll meet you there."
+“Go ahead. I’ll meet you there.”
 
-Amanda nodded and whispered, "Everse login" and slipped into the digital subconscious, as her mind entered the private Everse network that we had cordoned off.
+Amanda nodded and whispered, “Everse login” and slipped into the digital subconscious, as her mind entered the private Everse network that we had cordoned off.
 
-Seeing her in her dream like state, I started tearing up again, and I quickly went and washed my face in the bathroom, my violet eyes were puffy and red. I felt so anxious. Can chemistry outdo all sorrows of the knowing soul? I am haunted, and woe, with the blessing of the muses may I be an inspired storyteller, that the little girl in my custody sleeps in heaven, none the wiser. We will have our pocket in heaven, this day, and we will have our encapsulated joy in the physicality, her soul's last moment of non-pixellated authenticity.
-
-Girls night. Later on we'd star in and direct a hologram movie, her, me and Saraswati, not from within the Everse, but cuddled up on the couch, there is something sentimental still in existing in the actuality. Saraswati would play us music, we would eat our deserts, and Amanda and I would drift off into chemical slumber. And then my sister and I would have our Great Dream, our chronologically-bound affection, our heaven in a cordoned-off bottle.
+Seeing her in her dream like state, I started tearing up again, and I quickly went and washed my face in the bathroom, my violet eyes were puffy and red. I felt so anxious. Can chemistry outdo all sorrows of the knowing soul? I am haunted, and woe, with the blessing of the muses may I be an inspired storyteller, that the little girl in my custody sleeps in heaven, none the wiser. We will have our pocket in heaven, this day, and we will have our encapsulated joy in the physicality, her soul’s last moment of non-pixellated authenticity. 
+Girls night. Later on we’d star in and direct a hologram movie, her, me and Saraswati, not from within the Everse, but cuddled up on the couch, there is something sentimental still in existing in the actuality. Saraswati would play us music, we would eat our deserts, and Amanda and I would drift off into chemical slumber. And then my sister and I would have our Great Dream, our chronologically-bound affection, our heaven in a cordoned-off bottle.
+---
