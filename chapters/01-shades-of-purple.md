@@ -74,87 +74,187 @@ I wasn't the only one outside standing near the portable and sometimes quiet and
 
 I shrugged to myself, and to Clara, who dispensed Quickmeal and was occasionally cheerful, and occasionally solemn. This time she didn't bother to speak to me, though if anything I think both of us might have enjoyed a few morning pleasantries. It was a Monday, not that the day particularly mattered as a LearnQuest teacher, but it was one of those Mondays where you feel the need to teach in your soul. You can't always help yourself, or your circumstances, but there's almost always a way to help someone else.
 
-And on that note, I guess I ought to point out the irony that, as bitter a bitch as my first journal entry likely has you believing me to be, if you haven't stopped reading, I am a special education teacher. Technically I can work at any point in time, since there is a surplus of students in need of teachers with my particular abilities.
+And on that note, I guess I ought to point out the irony that, as bitter a bitch as my first journal entry likely has you believing me to be, if you haven't stopped reading, I am a special education teacher. Technically I can work at any point in time, since there is a surplus of students in need of teachers with my specialization, AKA kids with exceptionalities.
+
+I smiled at Simon, who handed me his meticulously cleaned and thoroughly guarded towels. I tried to enjoy the pulsing jets of perfect temperature, with recycled and thoroughly UV sterilized water. I had, I don't know why, I do this sometimes, brought a little kit of pocket make up that I used to give my pale skin a dash of cherry blush. It makes me look a little less like a vampire, which, again, is probably a curious choice given that teenage Alianii, me, renamed myself after a queen of death and darkness. I liked to look a little less tired, a little less world weary, than I actually felt when not at work. At a quick glance I look older than I am, at twenty-seven, because I dye my hair silver. But the eccentricity of artificially and permanently dyed violet purple eyes is aided by other facial aspects that some people have called beautiful.
 
 ---
 
-
 ## Part 3: Flirting With Hugo
 
-### March 8th, 2100 -  Right Before Work
+### March 8th, 2100 - Right Before Work
 
-Like most people who couldn’t afford physical adventure, non-digital adventure, that is electric jets to Europe and maglev bullet trains in Japan, I was raised predominantly in the Everse. I suppose it was only natural for me to figure out how to make a living through it. Mind you, I don’t exactly make a lot of money, as a teacher. But I can survive at least in Light’s Hope. 
-As is necessary for accessing the Everse, I laid in my bed in my glass and steel cage and closed my eyes and calmly stated the words, “Everse login”, staring at my metal roof. The UI overlay courtesy of a convenient but admittedly creepy-in-principle brain chip appeared as a layer over my vision. I entered my passcode via eye moments resting on letters and digits to verify that I was in a secure location, and I transitioned to the digital universe where I spent many of my waking hours.
+Like most people who couldn't afford physical adventure, non-digital adventure, that is electric jets to Europe and maglev bullet trains in Japan, I was raised predominantly in the Everse. I suppose it was only natural for me to figure out how to make a living through it. Mind you, I don't exactly make a lot of money, as a teacher. But I can survive at least in Light's Hope.
 
-Unlike my glass and steel cage, my virtual home has ample space and is decorated with quirky, modern digitized furniture which I could never actually afford. I’m not a digital architect so I didn’t design the house from scratch myself, it was a modular design I purchased for like a hundred dollars. But it is beautiful. 
+As is necessary for accessing the Everse, I laid in my bed in my glass and steel cage and closed my eyes and calmly stated the words, "Everse login", staring at my metal roof. The UI overlay courtesy of a convenient but admittedly creepy-in-principle brain chip appeared as a layer over my vision. I entered my passcode via eye moments resting on letters and digits to verify that I was in a secure location, and I transitioned to the digital universe where I spent many of my waking hours.
 
-It may not surprise you to learn that purple, white and silver were dominant in the color scheme of my home; my chairs that floated were violet. My curtains (which I usually left open, not that anyone could look through my digital nook), were lilac. My walls were painted pearl white to maintain a purity and brightness to the ambiance, and purple lights painted them softly as if airbrushed in the dinosaur-old Photoshop which I’d seen pictures of. My floor is made of speckled marble with silver trim on the border of each square. Outside of my circular windows you look into the rainbow aurora celestial sky.
-I could spend an hour describing all of the gizmos and doodads in my artificial sanctuary, my favorite is an anti-gravity fountain of water which flows through the “air” and around the room in spirals and swirls, zig zags and right lines, with different colored lights flickering through the water. It was as if someone had signed the soul of my apartment with aquatic cursive, you could reach out and touch the stream of water and feel it burst into rainbow mist and then instantly evaporate.
+Unlike my glass and steel cage, my virtual home has ample space and is decorated with quirky, modern digitized furniture which I could never actually afford. I'm not a digital architect so I didn't design the house from scratch myself, it was a modular design I purchased for like a hundred dollars. But it is beautiful.
 
-I switched from “appear offline” to “reluctantly sociable” (I liked to customize my status markers with a little Alianii flair), although I knew quite well I was directly inviting conversation. Hugo always, always messaged me when I logged in, the dude barely slept. He was bipolar like me, except he was always hypomanic - overstimulated, a little paranoid, a healthy handful of delusions of grandeur. He was one of the few people who had the access level to initiate video calls with me.
+It may not surprise you to learn that purple, white and silver were dominant in the color scheme of my home; my chairs that floated were violet. My curtains (which I usually left open, not that anyone could look through my digital nook), were lilac. My walls were painted pearl white to maintain a purity and brightness to the ambiance, and purple lights painted them softly as if airbrushed in the dinosaur-old Photoshop which I'd seen pictures of. My floor is made of speckled marble with silver trim on the border of each square. Outside of my circular windows you look into the rainbow aurora celestial sky.
 
-“Alianiiiiii, girl, how you doing? You good?”, said Hugo, as a 3D representation of his face and torso appeared in my vision, his hair the same old electric blue with streaks of bubble gum pink. He was a fashion designer, after all.
+I could spend an hour describing all of the gizmos and doodads in my artificial sanctuary, my favorite is an anti-gravity fountain of water which flows through the "air" and around the room in spirals and swirls, zig zags and right lines, with different colored lights flickering through the water. It was as if someone had signed the soul of my apartment with aquatic cursive, you could reach out and touch the stream of water and feel it burst into rainbow mist and then instantly evaporate.
 
-“Eh, mas o menos, I’ve been better. Maybe a little world weary,” I said, if there was anyone I could be honest with it was Hugo, I’d known him going on fifteen years. We met in a virtual meme gallery, in a section focused on self-deprecating humor from the early 2000s up to the COVID era.
+I switched from "appear offline" to "reluctantly sociable" (I liked to customize my status markers with a little Alianii flair), although I knew quite well I was directly inviting conversation. Hugo always, always messaged me when I logged in, the dude barely slept. He was bipolar like me, except he was always hypomanic - overstimulated, a little paranoid, a healthy handful of delusions of grandeur. He was one of the few people who had the access level to initiate video calls with me.
 
-I waved for him to enter the apartment fully and his avatar went from a torso and head to his full body, complete with his neomagi outfit - cyberpunk meets wizard, neon red, sparkling gold, shoulder hoods. He looked ridiculous, and I loved it. 
+---
 
-“Come visit me in Miami,” said Hugo, drumming his fingers on my table as he sat in one of my floating chairs, small fireworks popped into existence and sparkled into dazzling explosions, I allowed him to use digital magic in my domicile, “Why you still livin’ in Light’s Hope? It’s awful. I mean, you tell me its awful.”
+"Alianiiiiii, girl, how you doing? You good?", said Hugo, as a 3D representation of his face and torso appeared in my vision, his hair the same old electric blue with streaks of bubble gum pink. He was a fashion designer, after all.
 
-“I can’t afford Miami, Hugo. What’s your rent - eight thousand, a month?” 
+---
 
-“It’s closer to twelve but you know I live in the fashion district…chica. But you could visit me, stay with me as long as you like. Make something of yourself.”
+"Eh, mas o menos, I've been better. Maybe a little world weary," I said, if there was anyone I could be honest with it was Hugo, I'd known him going on fifteen years. We met in a virtual meme gallery, in a section focused on self-deprecating humor from the early 2000s up to the COVID era.
 
-“And do what precisely? I love my job,” I said, though I knew what his answer would be.
+I waved for him to enter the apartment fully and his avatar went from a torso and head to his full body, complete with his neomagi outfit - cyberpunk meets wizard, neon red, sparkling gold, shoulder hoods. He looked ridiculous, and I loved it.
 
-“Model for me, you sheik bitch. You’re gorgeous! Those violet eyes, your subtle frame, I’d name a Deathqueen line after you. Maybe we’d find you a dapper Tobias. Chica there’s a lot of good lookers in Miami! We could hit the clubs UP!”
+---
 
-“I think I’ll pass on the Tobias. Anyways - I make like twenty-five hundred a month, I’m not going anywhere where I cannot support myself. I couldn’t even afford the plane ticket, that’d cost…ah..yes,  fifteen hundred and twenty-one dollars and eighty-three cents at the cheapest. Fuck that.”
+"Come visit me in Miami," said Hugo, drumming his fingers on my table as he sat in one of my floating chairs, small fireworks popped into existence and sparkled into dazzling explosions, I allowed him to use digital magic in my domicile, "Why you still livin' in Light's Hope? It's awful. I mean, you tell me its awful."
 
-Hugo warped into a standing upright position and balled his fists and gyrated his hips in a feminine, grinding on the boys kind of motion, I knew he’d been with women too but he also rather liked men, “I got you boo. Let’s go. I’ll buy you that ticket right now, who gives a fuck? Why haven’t we met yet?”
+---
 
-My amigo moonwalked backwards, the aesthetics of his motion combined with a graphic usually called “afterimage” which made it look like multiple Hugos, one behind the other, were each participating in his groovy little neofunk dance. He was bobbing to the left and the right, and his afterimages flipped a golden coin into the air and blew on it as it fell down, the coins dissipated into explosions of translucent rainbow flowers, blowing my way. The flower effect was a subtle reference.
+"I can't afford Miami, Hugo. What's your rent - eight thousand, a month?"
 
-“Are you just trying to get into my pants, babe?” I asked, I waved my hand and dissipated his afterimages (my house, my rules) and locked his abilities for a moment. I teleported him back into one of the floating chairs and transformed into a lilac moonfox, and pounced onto the table in front of him, my voice went an octave higher to match the cuteness of my temporary form, “You’re so hypersexual it’s ridiculous, what do they put in the waters down there?”
+---
 
-“Ecstasy chica, and it’s that aquifer water yo, that good stuff,” Hugo beamed, “And I’m trying to put you INTO pants, into dresses, all that. I mean of course pants have to come off for other pants to go on but that’s just a part of life, that’s just Miami!”
+"It's closer to twelve but you know I live in the fashion district...chica. But you could visit me, stay with me as long as you like. Make something of yourself."
 
-I chirped, “Why aren’t you working? Go to your studio, I have bread to bake. Maybe we can hit up Neon Fire when I’m done.”
+---
 
-“Acquiring talent is part of what I do Alianii, I know talent when I see her,” said Hugo, I released his ability lock to allow him some creative freedom, “I might hold you to that offer. Neon Fire after work.”
+"And do what precisely? I love my job," I said, though I knew what his answer would be.
 
-“Yeah I bet you’d like to hold me to a lot of things. Fine. Alright, I gotta’ head to the LearnQuest lobby, you know, kids and all that. Apparently small group interaction is like, healthy for brain development, or something.”
+---
 
-We both knew I was lying, or acting, or in some silly way understating something I profoundly loved. I loved my job, if I didn’t have it and all of the adventures I had with kids I’d have killed myself already. Being a model in a dress could never replace the work that I do.
+"Model for me, you sheik bitch. You're gorgeous! Those violet eyes, your subtle frame, I'd name a Deathqueen line after you. Maybe we'd find you a dapper Tobias. Chica there's a lot of good lookers in Miami! We could hit the clubs UP!"
+
+---
+
+"I think I'll pass on the Tobias. Anyways - I make like twenty-five hundred a month, I'm not going anywhere where I cannot support myself. I couldn't even afford the plane ticket, that'd cost...ah..yes, fifteen hundred and twenty-one dollars and eighty-three cents at the cheapest. Fuck that."
+
+---
+
+Hugo warped into a standing upright position and balled his fists and gyrated his hips in a feminine, grinding on the boys kind of motion, I knew he'd been with women too but he also rather liked men, "I got you boo. Let's go. I'll buy you that ticket right now, who gives a fuck? Why haven't we met yet?"
+
+My amigo moonwalked backwards, the aesthetics of his motion combined with a graphic usually called "afterimage" which made it look like multiple Hugos, one behind the other, were each participating in his groovy little neofunk dance. He was bobbing to the left and the right, and his afterimages flipped a golden coin into the air and blew on it as it fell down, the coins dissipated into explosions of translucent rainbow flowers, blowing my way. The flower effect was a subtle reference.
+
+---
+
+"Are you just trying to get into my pants, babe?" I asked, I waved my hand and dissipated his afterimages (my house, my rules) and locked his abilities for a moment. I teleported him back into one of the floating chairs and transformed into a lilac moonfox, and pounced onto the table in front of him, my voice went an octave higher to match the cuteness of my temporary form, "You're so hypersexual it's ridiculous, what do they put in the waters down there?"
+
+---
+
+"Ecstasy chica, and it's that aquifer water yo, that good stuff," Hugo beamed, "And I'm trying to put you INTO pants, into dresses, all that. I mean of course pants have to come off for other pants to go on but that's just a part of life, that's just Miami!"
+
+---
+
+I chirped, "Why aren't you working? Go to your studio, I have bread to bake. Maybe we can hit up Neon Fire when I'm done."
+
+---
+
+"Acquiring talent is part of what I do Alianii, I know talent when I see her," said Hugo, I released his ability lock to allow him some creative freedom, "I might hold you to that offer. Neon Fire after work."
+
+---
+
+"Yeah I bet you'd like to hold me to a lot of things. Fine. Alright, I gotta' head to the LearnQuest lobby, you know, kids and all that. Apparently small group interaction is like, healthy for brain development, or something."
+
+We both knew I was lying, or acting, or in some silly way understating something I profoundly loved. I loved my job, if I didn't have it and all of the adventures I had with kids I'd have killed myself already. Being a model in a dress could never replace the work that I do.
 
 ---
 
 ## Part 4: Adventure Guide Profile
 
-Name: Alianii U843, A.G Educator Rank: 5 (Master), Ratings: 4.84/5.0 (638 reviews)
+**Name:** Alianii U843, A.G Educator Rank: 5 (Master), Ratings: 4.84/5.0 (638 reviews)
 
-Educational Background: Bachelor of Educational Arts in Spontaneous Learning from Light’s Hope University
+**Educational Background:** Bachelor of Educational Arts in Spontaneous Learning from Light's Hope University
 
-Age: 27, Sex: Female, Gender Identity: “Cosmic”
+**Age:** 27, **Sex:** Female, **Gender Identity:** "Cosmic"
 
-Residence: Light’s Hope, Oregon
+**Residence:** Light's Hope, Oregon
 
-A Message From The Educator: 
-Watch out, there’s a death dragon! Hi, parents, my name is Alianii U843 or just Alianii as I prefer it. I’ve been an adventure guide for over four years and I say it from within the depths of my soul that teaching and being an adventure guide is my vocation. My undergraduate thesis focused on adaptive horror and I consistently perform at an expert level in guiding students through emotionally challenging experiences, designed not with the purpose to scare but rather to give the opportunity to overcome fears, anxieties and traumas. Given my specialization, I primarily take on neurodivergent students, particularly students with anxiety, autism, OCD, PTSD, bipolar disorder, and depression and victims of cyber bullying - as well as other learning disabilities and mental health exceptionalities. I have nearly ten thousand hours logged as an educator. Please note that in the interests of offering my services to families in need, I bill at the lowest tier rate for my ranking, but this does NOT mean that I provide tutoring for students without exceptionalities or special needs. I do this by choice, please respect my choice and do not attempt to “bid” on me or get my attention via higher offers. 
+**A Message From The Educator:**
+
+Watch out, there's a death dragon! Hi, parents, my name is Alianii U843 or just Alianii as I prefer it. I've been an adventure guide for over four years and I say it from within the depths of my soul that teaching and being an adventure guide is my vocation. My undergraduate thesis focused on adaptive horror and I consistently perform at an expert level in guiding students through emotionally challenging experiences, designed not with the purpose to scare but rather to give the opportunity to overcome fears, anxieties and traumas. Given my specialization, I primarily take on neurodivergent students, particularly students with anxiety, autism, OCD, PTSD, bipolar disorder, and depression and victims of cyber bullying - as well as other learning disabilities and mental health exceptionalities. I have nearly ten thousand hours logged as an educator. Please note that in the interests of offering my services to families in need, I bill at the lowest tier rate for my ranking, but this does NOT mean that I provide tutoring for students without exceptionalities or special needs. I do this by choice, please respect my choice and do not attempt to "bid" on me or get my attention via higher offers.
 
 Thank you, respectfully - Alianii
 
-Reviews:
+**Reviews:**
 
-“As a therapist with my own practice for seventeen years, when I have a student who has been bullied, or is anxious, whose emotional state has been resistant to treatment, out of the hundreds of adventure guides that I have worked with, the one I refer my patients to is Alianii.”
+"As a therapist with my own practice for seventeen years, when I have a student who has been bullied, or is anxious, whose emotional state has been resistant to treatment, out of the hundreds of adventure guides that I have worked with, the one I refer my patients to is Alianii."
 
-“My name is Lily and I have four daughters. My heart was broken when Rose came home from school because other girls had bullied her. I put her in therapy for weeks to build her confidence, but what she needed was five sessions with Alianii. One week changed our family’s life.”
+"My name is Lily and I have four daughters. My heart was broken when Rose came home from school because other girls had bullied her. I put her in therapy for weeks to build her confidence, but what she needed was five sessions with Alianii. One week changed our family's life."
 
-“My son Marcus has had OCD since he was six. His tics were really challenging for our family. Marcus would fill up cups of water and place them on the kitchen floor one by one and start crying when he ran out of cups. All of his friends loved the Everse but he found it scary, until he worked with Alianii. He still has OCD, but instead of creating chaos in our house, he creates art, and makes money for it.”
+"My son Marcus has had OCD since he was six. His tics were really challenging for our family. Marcus would fill up cups of water and place them on the kitchen floor one by one and start crying when he ran out of cups. All of his friends loved the Everse but he found it scary, until he worked with Alianii. He still has OCD, but instead of creating chaos in our house, he creates art, and makes money for it."
 
-“I am ashamed to admit this, but my husband and I were at our wits end, and we were ready to give Celeste back to the government for placement with a different family. We knew there would be challenges, adopting from a nurture center, but we were infertile, and we thought it was the right thing to do. We didn’t realize the depth of longing that nurtured children go through, being born without families. We saw Alianii with U843 as her last name and instantly knew that the kind of woman who embraced her origin would be someone who could help heal our daughter. We were right, thank God. Alianii, you saved our family, you saved our daughter. We are so blessed to have had you in our daughter’s life.”
+"I am ashamed to admit this, but my husband and I were at our wits end, and we were ready to give Celeste back to the government for placement with a different family. We knew there would be challenges, adopting from a nurture center, but we were infertile, and we thought it was the right thing to do. We didn't realize the depth of longing that nurtured children go through, being born without families. We saw Alianii with U843 as her last name and instantly knew that the kind of woman who embraced her origin would be someone who could help heal our daughter. We were right, thank God. Alianii, you saved our family, you saved our daughter. We are so blessed to have had you in our daughter's life."
 
-## Part 5: Wonky the Bear
+---
+
+## Part 5: A LearnQuest Life
+
+### Regarding March 8th, 2100 - Reflections After Work - Written some days later
+
+LearnQuest has been the most popular Everse platform for educational and recreational experiences since the early 2070s. Over 1.5 billion students of every age, from children to senior citizens, use LearnQuest on a daily basis. If the study I read was correct, approximately 28 percent of the Everse data traffic was directly attributable to learning and gaming sessions hosted by LearnQuest. I differentiate between learning and gaming sessions in my words but in reality it is more of a spectrum. You learn in the well-designed games, you game in the well-designed learning. In any case, this March 8th, the second day after I started my journal, started off like any other.
+
+I teleported to the LearnQuest lobby, I switched to private visibility mode, and went to one of the theoretically infinite virtual offices that I had access to. Technically I could have reviewed case files from home, but there was something about going to an office, even an imaginary, empty, digital, office, that struck a chord with me. It made me feel like a "boomer" (I learned of this word from a meme gallery) from the days of gasoline, I don't know. Maybe I'm just weird.
+
+This Monday was interesting because I had cleared my "assignment debt", that is I had already "resolved" the cases that I had specifically referred to me by various other teachers, therapists and psychiatrists. I was and am a specialist, an educational marksman of sorts, my "unique" background has perhaps equipped me with an open-mind and empathy that makes it a little easier to relate to and work with students who struggle the most. In any case, my filters are set such that only about three percent of active LearnQuest profiles can see my profile at all, and of that three percent approximately 5 percent are cases severe enough that I would take on that assignment. That leaves several thousand students who I'd be willing to work with, and I usually do one on one sessions. What does help is that my sessions, and all sessions (for learning and child protection reasons) are recorded and reviewed, and so LearnQuest AI teachers and human peers benefit from my techniques. That said, without meaning to sound like a cocky bitch, there is a creative panache that can be hard for most to replicate.
+
+The electric glow of the imagined Everse office flickered to life, and I barely had to say a word before Marabelle's voice—calm, collected—filled the room.
+
+"I've sorted today's cases based on complexity, emotional volatility, and overall student engagement," Marabelle said, as she usually did, be it in one turn of phrase or another. She always spoke with a quiet confidence. As she often pointed out, she had "run through each and every possible outcome" before even presenting the options. I sighed and remembered what it was like when I was getting my master's degree and was first paired with an AI co-teacher.
+
+---
+
+"Give me a bit and let me think and draw my own conclusions for crying out loud, Marabelle! We're not all optimization problems."
+
+---
+
+My digital companion laughed. "False. You're going to end up picking Adrian - case number 43877-B".
+
+---
+
+"He's being considered. Relax." I responded. I had pulled out a group of files with a random number generator, to add a little bit of luck, but also out of pragmatic need to whittle down the list to something I could process quickly.
+
+---
+
+Marabelle pushed further, "Less time spent deciding on cases could achieve a higher total quantity of students assisted. We don't have time to dilly dally!"
+
+I continued sifting through the virtual profiles hovering in the "air". Adrian's face appeared, the usual flicker of defiance in his expression. Marabelle wasn't wrong in picking him, of course. The algorithm never was. But my heart tugged elsewhere. There was a boyish toughness in his grin that told me he would be fine - he had street smarts, he could fend for himself. I have to be surgical in who I pick, and Marabelle, thank god I have her, helps me with that. But I still have to rely on my intuition to make the final decision of how I allocate my efforts.
+
+---
+
+"Adrian will be alright. He's got an inner strength, I see it in his eyes. I'll pick a student with less independence."
+
+---
+
+"Samantha, then? She has been progressing slower than expected, emotionally speaking."
+
+---
+
+I sighed. "Samantha." It was clear the AI had learned from me. Marabelle wasn't just a tool; she was the closest thing I had to a sounding board. Or a mirror, if there's a difference.
+
+"No, not her either," I said, "We worked with her last week. She's recovering well. Let's give her some time to process our session and redirect her efforts and energies back into school. If we're too overbearing it will just push her away."
+
+I wanted a student with a more profound struggle. I really like working with students with bipolar, OCD, and PTSD. This might sound dumb or picky but they're the most fun and rewarding to work with in my experience. Bipolar students, like me, are a little crazy. I say it with love in my heart. They love the bonkers stories, they make the stories bonkers, and seeing them learn to regulate their emotions, learning to master their feelings and creativity, is supremely rewarding. OCD students are intellectually interesting because they are like a puzzle, and I like solving puzzles. Every case of OCD is different and as a neurodivergent person my perception of people with OCD may differ a little from the DSM X.
+
+I've found that students with OCD generally have areas of passion they are willing to explore, and through those passions we can work on their tics together. Children with PTSD are very challenging to work with but they also need it profoundly, I've worked with children from war zones, gang neighborhoods (basically war zones), disaster survivors, victims of violence, and so much more. Working with them is an ongoing commitment and I flourish the most as a teacher with some variety so I am very tactical in when I choose such students. Having a mix of students with different needs is very important for managing the stresses of emotional labor.
+
+I stopped as my eyes landed on a young girl of Asian descent, with piercing green eyes that had a soulful sorrow. She had a rejection rate of 99.7 percent, meaning she automatically or almost-automatically declined to work with any teacher who attempted to speak with her. As teachers, we have to respect student's autonomy and we cannot forcefully enter their reality and thus violate their agency. We have to extend an offer to them and see if they grant us permission to engage in a conversation and then possibly merge realities such that we inhabit the same Everse pocket AKA "instance" or "session". She was ten, so less than half my age. It seemed the last teacher who she agreed to work with was eight months ago, and that teacher was able to work with her for three sessions. Interestingly, however, Amanda refused to allow that teacher, Anna, to disclose any notes regarding their sessions together. Very curious.
+
+A few prior sessions from other teachers revealed a few tidbits. Phobias: clowns, shadow monsters, open ocean. Favorite flavors: strawberry, vanilla, mango. Favorite color: purple. I loved her already. Size of friends list: five. But I noticed something haunting. All five students on her friends list were deceased, three to suicide, and other than classification of suicide all of the profiles had data access revoked.
+
+I had a sneaking suspicion that she and I had a tragedy in common. Her profile was almost entirely blank, which brought up the question of how she even got a brain chip in the first place - usually children who were chipped had complete profiles.
+
+Brain scans: indicative of early onset bipolar including signs of both hypomanic and depressive episodes, prior teachers have reported paranoia and strange thought patterns which bordered on "mild" psychosis. If you've never been psychotic, it's hard to imagine that there are levels to it, it can be hard to comprehend a differentiation between slightly crazy and risk-to-oneself insane. I have been to the depths and beyond, and beyond again, and so I am proud to admit that I take medication for the betterment of myself and to maintain my ability to contribute to society.
+
+Amanda's early onset bipolar really spoke to me. It was also very curious that she was online in learning mode despite being so closed off from teachers. Most (nearly all) teachers wouldn't even try to talk to her with a rejection rate like her 99.7%, but something within her still longed for contact.
+
+---
+
+"You do always manage to surprise me, Alianii," said Marabelle, "With that inefficient fickleness of which I am so very fond! Amanda is a good choice too, I must admit."
+
+---
+
+## Part 6: Wonky the Bear
 
 ### March 8th, 2100 - In the Morning
 
